@@ -1,4 +1,4 @@
-# Tech Word
+# Tech World
 
 > inovção a seu alcance.
 
